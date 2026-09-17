@@ -1,3 +1,12 @@
+## Chloe Wedren
+
+Senior at Tulane University studying Political Science, with minors in Psychology and Strategy, Leadership & Analytics. On a pre-law track, graduating December 2026.
+
+- Judicial Intern, Chambers of the Honorable Meredith Grabill, U.S. Bankruptcy Court, Eastern District of Louisiana
+- Former compliance intern at GCM Grosvenor
+- Vice President, Tulane AI Society
+
+[chloewedren.github.io](https://chloewedren.github.io) · [LinkedIn](https://www.linkedin.com/in/chloe-wedren/)
 ## Hi there 👋
 
 <!--
